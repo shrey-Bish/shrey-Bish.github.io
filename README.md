@@ -1,1 +1,1 @@
-# Aruzhan Sabyrbek - Personal Website
+# Shrey Bishnoi - Personal Website
